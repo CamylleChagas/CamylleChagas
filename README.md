@@ -7,7 +7,7 @@
 - 😊 Tenho 31 anos
 - 🏠 Sou de Recife, Pernambuco 
 
-### Disciplina é liberdade.
+### "Disciplina é liberdade." 🌏 
 
 
 
