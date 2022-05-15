@@ -3,6 +3,7 @@
 - ✌️ Eu me chamo Camylle Chagas
 - 🌱 Em transição de carreira
 - 📖 Estou estudando Portugol
+- 📖 Devorando o Curso em Video Do Gustavo Guanabara
 - 👯 Formada em Administração  de empresas
 - 😊 Tenho 31 anos
 - 🏠 Sou de Recife, Pernambuco 
