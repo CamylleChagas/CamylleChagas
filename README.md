@@ -7,7 +7,7 @@
 - 😊 Tenho 31 anos
 - 🏠 Sou de Recife, Pernambuco 
 
-"Discplina é liberdade."
+
 
 ### Onde você pode me achar:
 
@@ -19,4 +19,4 @@
 ![CamylleChagas GitHub stats](https://github-readme-stats.vercel.app/api?username=CamylleChagas&show_icons=true&theme=radical)
 
 
-
+###Disciplina é liberdade.
