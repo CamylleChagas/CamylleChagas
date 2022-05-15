@@ -4,6 +4,8 @@
 - 🌱 Em transição de carreira
 - 📖 Estou estudando Portugol
 - 👯 Formada em Administração  de empresas
+- 😊 Tenho 31 anos
+- 🏠 Sou de Recife, Pernambuco 
 
 "Discplina é liberdade."
 
